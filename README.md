@@ -8,5 +8,7 @@ No momento presente curso Tecnologia em Análise e Desenvolvimento de Sistemas (
 Sendo assim a seguir estarão disponíveis as formas de me contatar:
 
 Email: Rockerma.rocker@gmail.com
+
 Telefone: (11) 994473983
+
 linkedin:
