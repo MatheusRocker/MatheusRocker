@@ -11,4 +11,4 @@ Email: Rockerma.rocker@gmail.com
 
 Telefone: (11) 994473983
 
-linkedin:
+linkedin:https://www.linkedin.com/in/matheus-rocker-593656239
